@@ -39,8 +39,10 @@ Non-judgmental, but also aware of my own faults.
 Myers-Briggs Type Indicator (MBTI): ENTJ.
 
 ### Negative Traits
-* Occasional arrogance, particularly in professional settings, though I'm actively working on it.
+* Occasional arrogance, though I'm actively working on it.
 * Tendency to be aloof when preoccupied with personal or professional issues.
+* Inability to put up with cheesy movies.
+* Impulsive at times, but much lesser occurance since 2021.
 
 ## Values
 * Emphasis on the journey over the destination, viewing life as a game where getting better enables us to enjoy and improve our journey.
