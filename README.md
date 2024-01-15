@@ -27,7 +27,7 @@ In limited amounts, I play video games, less than 1 hour a week. I rarely watch 
 I listen to classic rock, grunge, progressive metal and some EDM. Favorite bands are Pink Floyd, TOOL, Radiohead, Porcupine tree. Favorite artists are Mark Knoffler, David Gilmour, Maynard Keenan James, Jordan Ruddess.
 
 ### Other interests
-Stand-up comedy, live in person, small or big venues. Bourbon, but a very light drinker (2 drinks is tops!). Enjoy steak, Enjoying cooking. Bad baker.
+Stand-up comedy, live in person, small or big venues. Bourbon, but a very light drinker (2 drinks is tops!). Enjoy steak, Enjoying cooking. Bad baker. I enjoy some bougie food at times, and I'm a huge coffee drinker. 
 
 ## Personality
 ### Positive Traits
@@ -48,7 +48,8 @@ Myers-Briggs Type Indicator (MBTI): ENTJ.
 * Enjoying the process of trying, failing, and then trying again in the pursuit of improvement.
 
 ## What's Not Important to Me
-Idle gossip, judgment of others' choices, and imposing my morality on others. I believe in letting people live their lives as they please, as long as they do not harm others.
-Conflict Resolution Style
+Judgment of others' choices, and imposing my morality on others. I believe in letting people live their lives as they please, as long as they do not harm others.
+
+## Conflict Resolution Style
 Strong advocate for open communication. I believe in addressing even the slightest tensions early on.
 There's an Indian saying: "Don't leave the elephant in the shadows; it might just trample you." I resonate with this approach and strive to leave my ego out of conflict resolution, focusing more on listening and understanding.
