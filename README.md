@@ -8,13 +8,11 @@ I'm Pranav.
 People often mispronounce my name because the 'R' is rolled. It's an Indian name, a god no less, but I'm just a mere mortal. I hail from India, born there in November 1989. I'm trilingual, speaking English, Hindi, and Marathi fluently. The latter two are Indian languages predominantly spoken around Mumbai, India.
 
 ## My Background
-My origin story is a bit more complex. Near India, there's a small region called Konkan where Jewish settlers once arrived. I descend from one of these families. So, while I'm very Indian, I have slightly different features. For instance, many in my family have green eyes.
+My origin story is a bit more complex. Near Western coast of India, there's a small region called Konkan where Jewish settlers once arrived. I descend from one of these families. So, while I'm very Indian, I have slightly different features. For instance, many in my family have green eyes.
 
 Growing up in large cities like Mumbai and Pune, I was immersed in a culture where the hustle never stops. This 'hustle culture' has profoundly shaped me. Moving to the Upper Peninsula of Michigan was a significant cultural shift, marking the first time I felt homesick and lonely. It's akin to how people from NYC carry the 'noises of NYC' with them to quieter places.
 
-My American journey began when I arrived to study with only $500 to my name. Initially, it was a struggle. My first job here was as a janitor, which I was fired from for often being late due to studying at night. Fortunately, my studies paid off. The school offered me a Research Assistant position and covered my fees. My career took me from the automotive industry to working for Uber in Pittsburgh when it was a startup focused on autonomous vehicles. From
-
-2016 to 2021, I was involved in building robot cars due to my specialization in self-propelled drones. In 2021, I joined GM's research division, and now I lead a team at a startup in a similar field.
+My American journey began when I arrived to study with only $500 to my name. Initially, it was a struggle. My first job here was as a janitor, which I was fired from for often being late due to studying at night. Fortunately, my studies paid off. The school offered me a Research Assistant position and covered my fees. My career took me from the automotive industry to working for Uber in Pittsburgh when it was a startup focused on autonomous vehicles. From 2016 to 2021, I was involved in building robot cars due to my specialization in self-propelled drones. In 2021, I joined GM's research division, and now I lead a team at a startup in a similar field.
 
 ## Hobbies
 
